@@ -1,0 +1,2 @@
+# AlooshHost-
+From now on you give a format like this Flow SwiftKey SwiftKey SwiftKey SwiftKey GitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHubGitHub
